@@ -1,4 +1,4 @@
-# 
+# Exclusif Inkscape effets pour Mac OS | VIP Inkscape effets pour PC Windows. Avec plans de travail et styles de paragraphe — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
